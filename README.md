@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CoverdocsConsultant
+- 👋 Hi, I’m CoverdocsConsultant
 - 👀 I’m interested in ... Building Financial, passive and residual wealth remotelty.
 - 🌱 My career ...   Bussines Insurance Consultant for [coverdoc ](https://coverdocs.com)
 - 💞️ I’m looking to collaborate  ...  with like minded people for business or insurance.
